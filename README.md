@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @PixelAxolotl4702
+- 👀 I’m interested in Minecraft 
+- 🌱 I’m currently learning java?
+- 💞️ I’m looking to collaborate on nothing 
+- 📫 How to reach me discord (PixelAxolotl4702#7235)
